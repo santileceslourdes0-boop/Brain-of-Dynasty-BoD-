@@ -1,0 +1,176 @@
+🧠 Brain of Dynasty
+
+Novel Franchise — Mind Scaling Wiki
+
+💫 BoD Official Setup 💫
+
+Real Creator: Reotorist_DH7
+Fictional Creator: I'm Of I Am For
+
+Official BoD Characters — All of my “Official BoD Characters” are official additions to the BoD roster I have created. They are used for my OC wiki, and their rankings are based on “Mind Scaling” rather than “Power Scaling.”
+
+Facebook: Reo Darl Official
+YouTube: DarlRe_3
+
+---
+
+👾 Official Characters
+
+1. The Chicken Weaver ✅
+
+Personality / Title: Killer Universe / Cosmological Monster
+Title: Chicken of Eaters Cosmology
+
+Powers
+
+Eat of Source Logic and Mind
+— Can devour or consume logic and the mind itself.
+
+Nigh-Electric Matter
+— Can shut down all matter of thought through its electric hax.
+
+Manipulator Reality Down
+— Can consume the very rules within logic that are supposed to be followed.
+
+Explanation
+
+The Chicken Weaver represents a planetary cosmological mindset, capable of consuming high-end electric reality matter.
+
+Story
+
+A chicken whose very egg was a cosmological vision born in Latin America. Once it had grown, it devoured the planet like a seed.
+
+Role: Eater / Villainous Cosmology
+
+---
+
+2. Present Matual ✅
+
+Personality / Title: Respectful / Kind / Knowledgeable / Sometimes Lives in His Own World
+Title: The Timilemer Mind
+
+Powers
+
+Time Concept Mind
+— Can reset ideas and meanings, including concepts such as space, death, and others.
+
+Omni-Time Sequence
+— Can follow and correctly predict all of time, including the future and the past.
+
+Explanation
+
+Present Matual possesses an effective narrative concept of time, reaching a 600+ Present Reset Scale.
+
+Story
+
+In this instance, he conducts an experiment alongside Lucifer Talent. Through this experiment, they discover that Shenron is a God of Time, and Shenron is consequently granted the power of Time.
+
+Role: Respected Matter / Present Reset Main Side
+
+---
+
+3. Lucifer Talent ✅
+
+Personality / Title: Calm / Doesn't Trust Everyone / Doesn't Care About the World
+Title: Lucifer Goldmonstar
+
+Powers
+
+Instant Mind as God's Will
+— Can destroy his own existence in order to destroy the opponent's existence within thought, ending their true talent and knowledge.
+
+Rewritten Knowledge
+— Can rewrite an opponent's knowledge and tactics.
+
+Void Mind
+— Exists as nothingness and cannot be manipulated or killed through the mind. He can also destroy the narrative mind where a character is supposed to possess knowledge.
+
+Explanation
+
+Lucifer Talent is connected to Shenron as a Dynamic Void Source, originating from Shenron and capable of destroying the very concept of the “Death Mind” at the peak of an endless mind.
+
+Story
+
+Lucifer's “Talent Star” is a so-called “Will Talent” that burns through the layers of the mind within the world itself.
+
+Role: Uninterested / Own World / Knowledge
+
+---
+
+4. Shenron ✅
+
+Personality / Title: Godly / Calm / Destruction of God's Will
+Title: The Full Source Shenron
+
+Powers
+
+Source of Dynamic Absolute
+— The source responsible for philosophical changes throughout the entire world, including:
+
+- Physics
+- Mathematics
+- Ideas
+- Concepts
+- Existence
+
+Dynamic Conception Manipulation & Paradox Meter Minds
+— Controls fundamental changes and calamities within the cosmology of the mind. He remains Unvillable (Un-Absolute) while controlling change and erasure.
+
+Explanation
+
+Shenron originates from an Absolute Source Being, connected to Lucifer and the greater matter of the cosmology. He possesses the ability to destroy existence and fatal mind structures.
+
+Story
+
+Shenron is connected to “I Am,” the source of all existence and dynamism, where everything holds meaning and brings about change in the world.
+
+Role: God
+
+---
+
+5. The Plot Ship Omnitravel — Joe Ricardo ✅
+
+Personality / Title: Villain / Fatal / Brutal / Merciless
+Title: Killer Machine Ship
+
+Infinite Omnitravel
+
+Joe Ricardo can travel endlessly through:
+
+- Logic / Laws Mind
+- Sequence / Void Mind
+- Control Mind
+- Narrative Mind
+- Existence Mind
+- Concept Mind
+  - Death Mind
+  - Space Mind
+  - Idea Mind
+  - Meaning
+
+He was created as an entity capable of ascending through Pataphysics and Metaphysics, becoming an infinite narrative traveler that continuously travels through the layers of the mind.
+
+Explanation
+
+Joe Ricardo — Travel of Fourths Mind Break Ship / Travel of Peak Everything
+
+This means that no matter what is thrown against him, he continues traveling through it without stopping.
+
+Story
+
+Joe Ricardo traveled endlessly across various dimensions of the mind, layers of reality, and the entire cosmos. He even traversed the realm of his own creator, James Ricardo, and caused his creator's erasure.
+
+Role: Villain / Kill All of See
+Everything he sees becomes something he will travel through and erase using his mind.
+
+---
+
+📖 Chapter 1
+
+Official BoD Roster
+
+1. The Chicken Weaver
+2. Present Matual
+3. Lucifer Talent
+4. Shenron
+5. The Plot Ship Omnitravel — Joe Ricardo
